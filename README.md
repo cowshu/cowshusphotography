@@ -1,4 +1,4 @@
-# welcome to my photography
+# ARCHIVED: I MOVED TO HELLSITE https://www.tumblr.com/cowshu-photography
 
 rules:
 
